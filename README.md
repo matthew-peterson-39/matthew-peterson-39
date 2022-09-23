@@ -6,4 +6,3 @@ My name is Matt and I am studying Computer Science while serving in the US Air F
 - 👯 I’m looking to collaborate on any projects that will help me grow!
 - 💬 Ask me about anything whether it be programming or my life in the military. I am an open book and love sharing experiences with others.
 - 📫 How to reach me: Feel free to reach out via LinkedIn. At the moment I am not too active on it yet as I am still building up my profile.
-- 😄 Pronouns: He/Him
